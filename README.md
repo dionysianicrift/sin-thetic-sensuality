@@ -1,1 +1,1 @@
-# sin-thetic-sensuality
+# sin-thetic-synathesia
